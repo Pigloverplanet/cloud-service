@@ -1,4 +1,4 @@
-## Thing that are fun ig:
+## Things that are fun ig:
 1. Gaming
    - Satisfactory
    - Minecraft
