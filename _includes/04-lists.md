@@ -6,5 +6,6 @@
    - FH5
    - Subnuatica (but not Below Zero)
    - Genshin Impact
-2. Coding
+   - **COC**
+2. Coding ig
 3. 🦀
